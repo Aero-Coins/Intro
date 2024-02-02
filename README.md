@@ -1,5 +1,5 @@
 
-👋 Hi, I'm @Aero-Coins!
+👋 Hi, I'm @AEROCOINS!
 
 👀 I'm interested in the thrilling world of aviation and blockchain technology.
 
